@@ -10,7 +10,7 @@ Email Me 👉 ✉️ **nikkirawat@gmail.com** For Collaboration/Project or Anyth
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** nikkirawat1114@gmail.com
 - 😄 **Pronouns:** Nikki
-- ⚡ **Fun fact:** I Love Tech and Tech Love Me
+- ⚡ **Fun fact:** I Love Tech and Tech Love Me..
 
 ## 🔗 I am a Content Creator and front-end developer. 😊😊-
 
