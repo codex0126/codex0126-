@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Ati
+# 💫 Hi 👋, I'm Arti
 **A passionate software developer|| |  from India**
 
 Email Me 👉 ✉️ **nikkirawat@gmail.com** For Collaboration/Project or Anything Else. 😊😊
